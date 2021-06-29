@@ -8,3 +8,8 @@ It's this [rug](https://www.potterybarn.com/products/heathered-chenille-jute-rug
 
 <img src="https://github.com/mookerzhou/house-stuff/blob/main/IMG_7711.jpeg" width="420">
 
+2. Purple felt armchairs! Two! $40 for both, $60 for one. Yes. I really want you to take both.
+
+See those purple chairs in the previous photo? Well they're for sale too! These purple felt armchairs with wicker sides are comfy, vintage, and good vibes. They've faded quite a bit in the sun but that just adds to their charm. Both are in excellent condition for their age minus the fading. 
+
+3. Mid-century "butterfly" folding table. 
