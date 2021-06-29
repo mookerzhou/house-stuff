@@ -33,8 +33,11 @@ Up close image of some upholstery damage:
 
 3. Mid-century "butterfly" folding table.
 
-The table top has a dark wood veneer and has a built-in table extension. This
-table is:
+The table top has a dark wood veneer and a built-in table extension with a
+beautiful unfolding mechanism. It some chipping on the edge and some surface
+defects.
+
+DImensions:
 
 - 29.5 inches tall
 - 40 inches wide
