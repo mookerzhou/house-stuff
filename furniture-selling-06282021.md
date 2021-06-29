@@ -40,11 +40,11 @@ table is:
 - 40 inches wide
 - 29 inches long, extendable to 5 feet and 6 feet
 
-<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1775.jpeg" width="200">
-<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1771.jpeg" width="200">
-<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1773.jpeg" width="200">
-<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1772.jpeg" width="200">
-<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1774.jpeg" width="200">
+<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1775.jpg" width="200">
+<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1771.jpg" width="200">
+<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1773.jpg" width="200">
+<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1772.jpg" width="200">
+<img src="https://github.com/mookerzhou/house-stuff/blob/main/img/dining-table-july2021/IMG_1774.jpg" width="200">
 
 
 4. A truly ridiculous amount of bubblewrap and moving boxes. Free.
