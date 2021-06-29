@@ -21,3 +21,7 @@ Up close image of some upholstery damage:
 <img src="https://github.com/mookerzhou/house-stuff/blob/main/IMG_8223.jpeg" width="200">
 
 3. Mid-century "butterfly" folding table. 
+
+4. A truly ridiculous amount of bubblewrap and moving boxes. Free.
+
+<img src="https://github.com/mookerzhou/house-stuff/blob/main/IMG_8219.jpeg" width="420">
